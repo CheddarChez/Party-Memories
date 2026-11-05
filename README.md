@@ -51,6 +51,8 @@
 
 [THE hungry caterpillar] thinks: Search missing men or smth
 
+[spamton] im not stinky its my masculine aura
+
 <img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/4bde6dae-e023-4948-a0b1-2722ddda9928" />
 
 People of the party (may not appear here YET)
