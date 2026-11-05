@@ -1,17 +1,31 @@
-# Party-Memories
-Memories of the party “#theehaw”
+<img width=350  height="70" alt="image" src="https://github.com/user-attachments/assets/0087aa89-c0eb-475c-88d9-b4599f18ae54" />
+
+
+
+
+
+
+
+
+<img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/c7c13233-2c6e-4aa0-8479-7c818842ec2f" />
+
 
 <img width="1179" height="1225" alt="image" src="https://github.com/user-attachments/assets/3d3ff3da-cd13-4997-86f8-ea36bb6808c1" />
+<img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/9b0f2d94-d279-4070-b6d4-24abde3a3b61" />
 
 <img width="984" height="675" alt="image" src="https://github.com/user-attachments/assets/09a6bc62-d872-49ab-8d56-a1fe99b79afc" />
+<img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/e9545b46-bb76-44ab-a1bb-fbdb8460c679" />
 
 
 <img width="1179" height="1476" alt="image" src="https://github.com/user-attachments/assets/02330f9c-d1bc-426e-a542-304d65d36099" />
+<img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/04ddae8d-41f9-4f69-9502-f1c60e9f7bff" />
 
 
 <img width="1178" height="987" alt="image" src="https://github.com/user-attachments/assets/d2851f39-85fe-44dc-a04d-61ceb03178d4" />
+<img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/46ee2a45-1e4f-4ae3-b49a-8a021237277c" />
 
 <img width="1179" height="978" alt="image" src="https://github.com/user-attachments/assets/c99dab3e-406f-4159-9da6-6bcbec764b82" />
+<img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/389ee55f-9d86-4124-95d9-3b02acf8c24a" />
 
 [Nozomi . Wip 😡] Just don’t fuck Mariah
 
@@ -26,5 +40,19 @@ Memories of the party “#theehaw”
 [Pony] thinks: I Accidentally Got ChatGPT Pregnant And Now That Toxic AI Bitch Is Trying To Put Me On Child Support
 
 [THE hungry caterpillar] thinks: Search missing men or smth
+
+<img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/4bde6dae-e023-4948-a0b1-2722ddda9928" />
+
+People of the party (may not appear here YET)
+
+[Theo!](https://github.com/harmonizingverses).  [Mikoto!](https://github.com/DoctorFunkbeat). [Kris!](https://github.com/falcon-ft). [Izzy!](https://github.com/sinfulribbons). [Simon!](https://github.com/BloomingCrown). [Kim!](https://github.com/jiraiki)
+
+
+idk if I frogot some1 lol 
+     sorry if I did!
+
+<img width="300" height="70" alt="image" src="https://github.com/user-attachments/assets/12e11023-10bc-40ce-be29-be4713f00b00" />
+  
+
 
 
