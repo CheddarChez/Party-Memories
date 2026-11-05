@@ -53,6 +53,10 @@
 
 [spamton] im not stinky its my masculine aura
 
+[spamton] jokes on you i dont take baths
+
+[THE hungry caterpillar] Malu would like kiss Flavio’s feet or smth
+
 <img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/4bde6dae-e023-4948-a0b1-2722ddda9928" />
 
 People of the party (may not appear here YET)
