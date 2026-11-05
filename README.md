@@ -26,6 +26,16 @@
 
 <img width="1179" height="978" alt="image" src="https://github.com/user-attachments/assets/c99dab3e-406f-4159-9da6-6bcbec764b82" />
 <img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/389ee55f-9d86-4124-95d9-3b02acf8c24a" />
+<img width="1085" height="484" alt="image" src="https://github.com/user-attachments/assets/d0c69c0e-32ee-4c44-aa19-ddbd3263d863" />
+<img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/86c25f4f-3af8-4a2e-a28d-59ba1810ae1f" />
+<img width="398" height="449" alt="image" src="https://github.com/user-attachments/assets/a00d23c8-c219-458f-9ce9-ee9b15db8598" />
+<img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/491fb659-6b05-4216-818a-920fb377aa55" />
+<img width="800" height="789" alt="image" src="https://github.com/user-attachments/assets/edbf1c97-a9b2-4606-b527-4e5beb5e7e02" />
+<img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/0c782187-17cb-476c-99b5-020624483ba2" />
+<img width="1179" height="803" alt="image" src="https://github.com/user-attachments/assets/1f13342a-52bb-4c08-a4f1-b2ba76214d55" />
+<img width="1279" height="183" alt="image" src="https://github.com/user-attachments/assets/2c134f78-c330-4a1e-8c92-f48f5fdb33a5" />
+
+
 
 [Nozomi . Wip 😡] Just don’t fuck Mariah
 
